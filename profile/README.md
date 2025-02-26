@@ -50,11 +50,8 @@ Ready to take your business to the next level? Get in touch or explore our servi
 
 Follow us on social media to stay updated:
 
-- **Twitter**: [@WebSEOTrends](https://twitter.com/WebSEOTrends)
-- **LinkedIn**: [WebSEOTrends](https://linkedin.com/company/webseotrends)
-- **Facebook**: [WebSEOTrends](https://facebook.com/WebSEOTrends)
-- **Instagram**: [@WebSEOTrends](https://instagram.com/WebSEOTrends)
-
+- **pinterest**: [Webseotrends](https://pinterest.com/webseotrends/)
+- **LinkedIn**: [Webseotrends](https://linkedin.com/company/webseotrends)
 ---
 
 ## 📬 Contact Us
